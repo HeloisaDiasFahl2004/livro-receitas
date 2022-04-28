@@ -40,6 +40,8 @@
 
 6.  Sirva com arroz branco e batata palha.
 
-7. Pronto para servir  :happy:
+7. Pronto para servir !
+
+
 
    
